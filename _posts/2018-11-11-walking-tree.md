@@ -1,5 +1,5 @@
 ---
-layout: posts
+layout: post
 title: "The Walking Tree"
 ---
 I am the walking tree.  
