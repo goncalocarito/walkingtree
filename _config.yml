@@ -41,3 +41,5 @@ plugins:
 header_pages:
   - posts.md
   - about.md
+
+future: false

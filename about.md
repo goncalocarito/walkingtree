@@ -11,10 +11,10 @@ A virtual gallery of paintings done with my words: the mirror of my analysis and
 This is my expression of being a walking tree, be welcome, feel in home.  
 
 **PT**  
-A Walking tree é um lugar de partilha de reflexões, pensamentos internos, e pequenos fragmentos de motivações e inspirações sobre a vida e a arte de viver a vida.  
+Walking tree é um lugar de partilha de reflexões, pensamentos internos, e pequenos fragmentos de motivações e inspirações sobre a vida e a arte de viver a vida.  
 É uma pequena janela sobre a minha secretária despida, vestida apenas com um notebook e uma caneta escura.  
 Uma galeria virtual de quadros feitos das minhas palavras: espelhos das minhas análises e das minhas emoções: por vezes bem-estruturadas, outras verdadeiramente anárquicas - mas sempre numa procura através da minha expressão de balanço interno entre a presença forte e as raízes profundas de uma árvore e, ao mesmo tempo, a liberdade e leveza de andar em qualquer direcção.  
-Esta é a minha expressão de ser uma walking tree, seja bem-vindo, sinta-se em casa. 
+Esta é a minha expressão de ser walking tree, seja bem-vindo, sinta-se em casa. 
 
 
 
