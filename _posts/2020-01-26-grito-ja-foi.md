@@ -24,4 +24,4 @@ Não quero saber de quem sou no futuro infinitamente mais próximo nem no agora 
 
 Que sopre o vento no campo sem consciência de que sopra-se, que eu viva cada instante sem a consciência que ele existe. E aí sou a representação da natureza mais profunda, da natureza que não se reconhece pois não sabe o que é tempo e é todo esse cheiro de madeira molhada, de gotículas de orvalho, de animais sorvendo a seiva - sem saber.
 
-A racionalidade é um peso e um fardo. Que para fardos seja o campo e eu seja nesse instante tudo o que não possa sequer pensar ou imaginar pois se o fizer deixa de ser vida-vivida e passa a ser, apenas, vida-imaginada.
+A racionalidade é um peso e um fardo. Que para fardos seja o campo e eu seja, nesse instante, tudo o que não possa sequer pensar ou imaginar, pois se o fizer deixa de ser vida-vivida e passa a ser, apenas, vida-imaginada.
