@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Grito - já foi"
+title: "Grito (já foi)"
 ---
 
 Podia ser como antigamente, tudo com essa dimensão de que podia me evitar até um dia longínquo. Que podia-me fechar nessa concha até não sei bem: “sou um jovem e os 30 estão demasiado longe”.
